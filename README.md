@@ -12,6 +12,73 @@
 <h3 class="" data-start="1257" data-end="1305">So, What Makes the Writix Bundle So Special?</h3>
 <p class="" data-start="1307" data-end="1612">The Writix Bundle is the <strong data-start="1332" data-end="1352">ultimate package</strong> that unlocks everything this platform has to offer, giving you access to all the advanced features and upgrades at a discounted price. Let’s explore what’s included and why it’s a no-brainer for anyone serious about leveraging AI to streamline their business.</p>
 
+# ✍️ Writix AI – Full Funnel + Exclusive Bonus Vault 🎁
+
+## 🔥 Writix AI All-Inclusive Deal  
+💡 Get Writix AI Elite + ALL Upgrades in One Powerful Package  
+Type in your browser:  
+`jvz1[dot]com/c/672499/416134`
+
+---
+
+## 🔹 Writix AI Front-End (FE): Writix AI Elite  
+Type: `jvz8[dot]com/c/672499/416125`
+
+---
+
+## 🔄 Optional Upgrades (OTOs & Bumps)
+
+- **Bump 1: Writix AI Unlimited**  
+  Type: `jvz2[dot]com/c/672499/416136`
+
+- **Bump 2: All-Inclusive Add-On**  
+  Type: `jvz7[dot]com/c/672499/417489`
+
+---
+
+### 🚀 Main OTOs
+
+- **OTO 1: Writix AI PRO**  
+  Type: `jvz9[dot]com/c/672499/416126`
+
+- **OTO 2: Writix AI Reseller**  
+  Type: `jvz6[dot]com/c/672499/416128`
+
+  - **Bump: Reseller 120 Extra**  
+    Type: `jvz6[dot]com/c/672499/416138`
+
+- **OTO 3: Engagi AI PRO**  
+  Type: `jvz3[dot]com/c/672499/416130`
+
+- **OTO 4: Blogi AI PRO**  
+  Type: `jvz3[dot]com/c/672499/416132`
+
+---
+
+## 🎁 Check Bonus Page  
+Unlock your exclusive bonuses here:  
+`williamreview[dot]com/writix-ai`
+
+---
+
+## 💥 Bonus Vault Access  
+🌟 **5,000+ Mega Bonuses – Valued at $2,976,749+**  
+Grab them here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase via any link above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Confirm your email — you’ll receive **ALL bonuses within 12 hours**.
+
+---
+
+✅ **Affiliate ID Check**  
+At checkout, make sure it says:  
+**Affiliate: 672499 – William Johnson**
 
 <hr class="" data-start="1614" data-end="1617" />
 
@@ -120,3 +187,70 @@
 <h3 class="" data-start="6697" data-end="6747">Don’t Miss Out — Grab the Writix Bundle Today!</h3>
 <p class="" data-start="6749" data-end="6978">Ready to simplify your workflow, unlock more features, and future-proof your business? The <strong data-start="6840" data-end="6857">Writix Bundle</strong> is waiting for you at a <strong data-start="6882" data-end="6899">special price</strong>. Don’t miss out — click below to claim your bundle before the price increases.</p>
 <p class="" data-start="6980" data-end="7051">🔗 <strong data-start="6983" data-end="7051">Secure Your Writix Bundle Now and Start Automating Your Success!</strong></p>
+# ✍️ Writix AI – Full Funnel + Exclusive Bonus Vault 🎁
+
+## 🔥 Writix AI All-Inclusive Deal  
+💡 Get Writix AI Elite + ALL Upgrades in One Powerful Package  
+Type in your browser:  
+`jvz1[dot]com/c/672499/416134`
+
+---
+
+## 🔹 Writix AI Front-End (FE): Writix AI Elite  
+Type: `jvz8[dot]com/c/672499/416125`
+
+---
+
+## 🔄 Optional Upgrades (OTOs & Bumps)
+
+- **Bump 1: Writix AI Unlimited**  
+  Type: `jvz2[dot]com/c/672499/416136`
+
+- **Bump 2: All-Inclusive Add-On**  
+  Type: `jvz7[dot]com/c/672499/417489`
+
+---
+
+### 🚀 Main OTOs
+
+- **OTO 1: Writix AI PRO**  
+  Type: `jvz9[dot]com/c/672499/416126`
+
+- **OTO 2: Writix AI Reseller**  
+  Type: `jvz6[dot]com/c/672499/416128`
+
+  - **Bump: Reseller 120 Extra**  
+    Type: `jvz6[dot]com/c/672499/416138`
+
+- **OTO 3: Engagi AI PRO**  
+  Type: `jvz3[dot]com/c/672499/416130`
+
+- **OTO 4: Blogi AI PRO**  
+  Type: `jvz3[dot]com/c/672499/416132`
+
+---
+
+## 🎁 Check Bonus Page  
+Unlock your exclusive bonuses here:  
+`williamreview[dot]com/writix-ai`
+
+---
+
+## 💥 Bonus Vault Access  
+🌟 **5,000+ Mega Bonuses – Valued at $2,976,749+**  
+Grab them here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase via any link above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Confirm your email — you’ll receive **ALL bonuses within 12 hours**.
+
+---
+
+✅ **Affiliate ID Check**  
+At checkout, make sure it says:  
+**Affiliate: 672499 – William Johnson**
